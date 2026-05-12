@@ -1,4 +1,4 @@
-Pulak Saha — Aspiring Data Analyst & AI Developer
+Pulak Saha — Aspiring Data Scientist & AI Developer
 =================================================
 
 🚀 Experience & Proof
